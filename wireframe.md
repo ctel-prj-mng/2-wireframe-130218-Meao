@@ -1,1 +1,1 @@
-Ссылка на страницу [moqup](https://app.moqups.com/TmlXEfYuDE/edit/page/aa9df7b72)
+Ссылка на страницу [moqup](https://app.moqups.com/TmlXEfYuDE/view)
